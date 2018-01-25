@@ -29,7 +29,7 @@ Other fun facts about me:
 High School
 
   - GPA: 4.27 (weighted), 3.90 (unweighted)
-  - SAT: 1480 (760 math
-  - AP Scores: European Civilization (4), English Language (4), German (4), United States History (4), Calculus AB (5), Government and Politics (?), Physics C: Mechanics (?), Calculus BC (?), Computer Science (?)
+  - SAT: 1480 (750 math, 730 reading/writing)
+  - AP Scores: European Civilization (4), English Language (4), German (4), United States History (4), Calculus AB (5), Government and Politics (4), Physics C: Mechanics (4), Calculus BC (3), Computer Science (5)
   - Sports: Soccer (9: Frosh (Captain), 10-11: JV (Captain), 12: Varsity), Volleyball (9: JV (Captain), 10: Varsity, 11-12: Varsity (Captain), Beach Volleyball (10: JV, 11-12: Varsity (Captain))
   - Extracurriculars: Peer Counseling (Group Leader and Scribe), Assosiated Student Body (Digital Coordinator), Speech and Debate (Publicity), Natural High Club (President), National Honors Society, California Scholarship Federation
